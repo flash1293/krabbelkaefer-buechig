@@ -9,3 +9,4 @@ Die Krabbelgruppe der Heilig-Geist-Gemeinde Büchig, lädt alle **werdenden Elte
 Interesse geweckt? Meldet euch gerne per eMail unter [info@krabbelkäfer-stutensee.de](mailto:mailto) oder kommt ganz spontan vorbei!
 
 
+<img src="https://user-images.githubusercontent.com/122925568/213278720-48d028e8-bcf7-4126-bc5d-5cf90ca71a78.jpg" width=400 />
