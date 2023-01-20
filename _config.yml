@@ -4,4 +4,7 @@ author: null
 description: >
   Verantwortlich für Inhalte: Melanie Reuter, info@krabbelkäfer-stutensee.de in Stutensee Büchig
 header_pages:
-  - "Über uns.md"
+  - _pages/about.md
+
+include:
+    - _pages
