@@ -10,7 +10,7 @@ Die Krabbelgruppe der Heilig-Geist-Gemeinde Büchig, lädt alle **werdenden Elte
 * **Wo**: in den Räumen des evangelischen Gemeindehauses, Sterntalerstr.2  Bei schönem Wetter, gehen wir auch gerne mal auf einen Spielplatz
 * **Wie**: kostenlos, unverbindlich, ohne Datenerfassung und Anmeldung
 
-Interesse geweckt? Meldet euch gerne per eMail unter [info@krabbelkäfer-stutensee.de](mailto:mailto) oder kommt ganz spontan vorbei!
+Interesse geweckt? Meldet euch gerne per eMail unter [info@krabbelkäfer-stutensee.de](mailto:info@krabbelkäfer-stutensee.de) oder kommt ganz spontan vorbei!
 
 
 <img src="https://user-images.githubusercontent.com/122925568/213278720-48d028e8-bcf7-4126-bc5d-5cf90ca71a78.jpg" width=400 />
