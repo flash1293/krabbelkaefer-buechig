@@ -33,10 +33,12 @@ ___
 
 Vergangenen Dienstag, den 28.Mai blieb das Wetter trotz schwankender Vorhersage, Gott sei Dank trocken. Ob mit dem Rad, Schienenersatz-Verkehr, Zug oder dem Auto, es machten sich so manche Krabbelkäfer auf den Weg in den karlsuher Zoo. Während sich die ersten beim Streichelzoo trafen, kamen die anderen auf der anderen Seite des Zoos an und machten sich auf den Weg, Richtung Exotenhaus. Nachdem die Meisten von uns die wundervolle Welt einiger Exoten bestaunt hatten, richteten wir uns auf der Wiese gegenüber unsere Picknick-Decken als gemütliche Insel und begannen die Mittagspause. Während ein paar von uns ein wenig laufen mussten, damit die kleineren Käfer ein wenig schlafen konnten, verweilten ein paar andere noch ein wenig auf der Wiese. Nachdem alle satt und zufrieden waren liefen wir weiter und trafen nach und nach wieder alle, die zuvor ein wenig laufen mussten oder etwas später im Zoo angekommen waren. Nachdem die Kinder alle Tiere gesehen hatten, die sie sehen wollten und ein paar leider schon wieder nach Hause wollten, folgten wir dem Wunsch eines Geschwister-Käfers und begaben uns zum Spielplatz beim Rosengarten. Es war wieder ein wunderschöner Tag und ich freue mich sehr darauf, diesen bald zu wiederholen! 
 
+___
 
+2025
 
-
-
+Auch in diesem Jahr, haben wir gemeinsam den Karlsruher Zoo besucht. Bei herrlichem Wetter haben wir auf der Wiese ein ausgiebiges Pick-Nick gemacht und gemeinsam die Zoobewohner bewundert. 
+Desweiteren durften wir einige neue Käferchen bei uns begrüssen. Zum Teil ganz neu hinzugekommen und zum Teil die nächste Generation bereits eingelebter Familien. Aber egal das wie vielte Käferchen es sein mag, es ist und bleibt etwas besonderes und ich freue mich, dass wir nun ein Teil des jeweiligen, kleinen Lebens sein dürfen!!! 
 
 
 
