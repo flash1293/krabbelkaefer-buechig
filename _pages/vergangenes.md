@@ -37,7 +37,10 @@ ___
 
 2025
 
-Auch in diesem Jahr, haben wir gemeinsam den Karlsruher Zoo besucht. Bei herrlichem Wetter haben wir auf der Wiese ein ausgiebiges Pick-Nick gemacht und gemeinsam die Zoobewohner bewundert. 
+Das erste Highlight diesen Jahres, war ein vorgezogenes "Osterfeuer", dass eine Familie aus unserer Gruppe organisierte. Es wurde gegrillt und gelacht. Der ältere Sohn dieser Familie hat zusammen mit seiner Truppe der Jugendfeuerwehr eine Feuerwehrübung organisiert, die unseren Kindern vorführte, wie sie im Notfall Agieren. Zum Schluss, durften die Kinder dann sogar noch die Einsatzfahrzeuge inspizieren und tolle Fotos machen. 
+
+Als nächstes kam dann, auch in diesem Jahr, unser gemeinsamer Ausflug in den karlsruher Zoo. Bei herrlichem Wetter haben wir auf der Wiese ein ausgiebiges Pick-Nick gemacht und gemeinsam die Zoobewohner bewundert. 
+
 Desweiteren durften wir einige neue Käferchen bei uns begrüssen. Zum Teil ganz neu hinzugekommen und zum Teil die nächste Generation bereits eingelebter Familien. Aber egal das wie vielte Käferchen es sein mag, es ist und bleibt etwas besonderes und ich freue mich, dass wir nun ein Teil des jeweiligen, kleinen Lebens sein dürfen!!! 
 
 
